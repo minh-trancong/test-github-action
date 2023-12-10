@@ -1,1 +1,1 @@
-This is a badly writen sentence.
+Very unique items are available in the shop.
